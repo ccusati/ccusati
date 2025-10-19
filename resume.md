@@ -1,3 +1,4 @@
 Corinne Cusati
 Northeastern University 
-*enter more info
+Khoury College of Computer Science - Computer Science and Mathematics major
+Expected graduation - Spring 2029
